@@ -25,7 +25,7 @@ Hey there! I love to read, speak, and discuss trending tech, space, and science.
 
 
 
-### ⚡ Kaviya's Stats
+### ⚡ Kaviya's Starts
 <br />
 <p align="center">
 	<a href="https://github.com/kaviyaM019">
